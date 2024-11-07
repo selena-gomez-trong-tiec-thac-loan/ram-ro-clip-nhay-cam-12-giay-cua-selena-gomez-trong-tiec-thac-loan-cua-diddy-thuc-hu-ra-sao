@@ -1,4 +1,4 @@
-# +Full clip Rầm rộ clip nhạy cảm 12 giây của Selena Gomez trong tiệc thác loạn của Diddy, thực hư ra sao?
+# +Full video clip Rầm rộ clip nhạy cảm 12 giây của Selena Gomez trong tiệc thác loạn của Diddy, thực hư ra sao?
 
 
 Mạng xã hội Weibo của Trung Quốc bất ngờ lan truyền clip được cho là Selena 'thác loạn' tại tiệc của Diddy. 
